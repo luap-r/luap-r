@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @luap-r
 - 👀 I’m interested in computers
 - 🌱 I’m currently learning for school
-- 💞️ I’m looking to collaborate on everithing
+- 💞️ I’m looking to collaborate on everything
 - 😄 Pronouns: he/her
 - ⚡ Fun fact: i like piza
